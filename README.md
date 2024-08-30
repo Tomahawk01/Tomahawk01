@@ -1,6 +1,6 @@
 # Hi everyone! 👋
 
-I'm a software engineer from Ukraine.
+I'm a software engineer from Canada.
 Continuously seeking opportunities to enhance skills and stay up-to-date with emerging technologies.
 Seeking a challenging role as a software engineer in the IT industry to apply skills, knowledge, and passion for software engineering.
 
